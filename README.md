@@ -2,7 +2,7 @@
 
 
 
-# 👋 Hello, I'm Anju Kashyap  
+# 👋 Hello, I'm Anju Kashyap 
 
 I am a detail‑oriented professional currently working as a **Senior Secure Start Operations Coordinator at Hollister Global Business Services India Pvt Ltd**, with a strong foundation in **Data Analytics, CRM Operations, Reporting, and Process Optimization**.  
 My background includes customer onboarding, analytical reporting, workflow automation, and cross‑functional collaboration—delivering operational efficiency and measurable business impact.
