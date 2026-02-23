@@ -46,6 +46,7 @@ My background includes customer onboarding, analytical reporting, workflow autom
 📩 **Email:** anjurajpur132132@gmail.com  
 🔗 **LinkedIn:** https://www.linkedin.com/in/anju-kashayp-57aba1243  
 💻 **GitHub:** https://github.com/anju-kashayp  
+🔗 **naukri.com https://www.naukri.com/mnjuser/profile?id=&altresid
 
 ---
 
